@@ -1,3 +1,0 @@
-# afifkhaidir.github.io
-
-`code`
